@@ -1,0 +1,1 @@
+# Soal-5---Menghitung-Nilai-Rata-rata-Ujian-Siswa---Dynand
